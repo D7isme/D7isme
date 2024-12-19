@@ -1,3 +1,7 @@
 ## Hello users, This is D7, you know what lets make internet better by contributing.
 
-### and wise men said, you are always one code away from braking the internet.
+### As wise men said, You are always one code away from braking the internet.
+
+
+#### Have anything in mind, How to contact me!!
+  just mail me on this email <a href="mailto:myyi57p6@anonaddy.com">myyi57p6@anonaddy.com</a>
