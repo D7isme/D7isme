@@ -1,4 +1,4 @@
-## Hello users, This is D7, you know what lets make internet better by contributing.
+## Hello users, This is D7, you know what let's make the internet better by contributing.
 
 ### As wise men said, You are always one code away from braking the internet.
 
